@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lorenzobruno7 
+- 🌱 I’m currently studying at UNIMI
+- 📫 How to reach me: lorenzo.bruno7@studenti.unimi.it
